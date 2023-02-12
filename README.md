@@ -29,7 +29,7 @@ Contact with me to get the Password of Zip file on :
   
  Email : erfan4lx@gmail.com
  
-Show full video on YouTube : https://youtu.be/0pip48msgQ0
+Show full video on YouTube : https://youtu.be/0pip48msgQ0/
 
 Show demo video on Instagram : https://www.instagram.com/reel/Cok-bS_vWLU/
  
