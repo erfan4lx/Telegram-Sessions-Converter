@@ -1,8 +1,6 @@
 # Telegram-Sessions-Converter
 Convert your sessions from Telethon to Pyrogram and Pyrogram to Telethon fully automated
 
-555
-
 Purchase it on my website : https://erfan4lx.com/product/Telegram-Sessions-Converter/
 
 Features :
