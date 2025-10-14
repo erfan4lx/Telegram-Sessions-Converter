@@ -30,14 +30,10 @@ Contact with me to get the Password of Zip file on :
  Email : erfan4lx@gmail.com
  
 Show full video on YouTube : https://youtu.be/0pip48msgQ0/
-
-Show demo video on Instagram : https://www.instagram.com/reel/Cok-bS_vWLU/
  
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
 🆔My Telegram Channel : https://t.me/erfan4lx_news
-
-🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
  MY OFFICIAL WEBSITE : https://erfan4lx.com
 
